@@ -1,1 +1,1 @@
-# cryptogennepal.github.io
+# CryptoGen Nepal
